@@ -1,1 +1,1 @@
-# Identifica-o-de-imagem-representativa
+# Identificação-de-imagem-representativa
